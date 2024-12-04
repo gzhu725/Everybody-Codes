@@ -1,0 +1,1 @@
+Not solving these during competition time (real time) but solving the new [Everybody Codes](https://everybody.codes/)! 
